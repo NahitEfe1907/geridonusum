@@ -1,0 +1,2 @@
+# geridonusum
+geriy dönüşüm
